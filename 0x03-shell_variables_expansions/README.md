@@ -1,1 +1,1 @@
-the path to success
+if the path be beautiful, let us not ask where it leads
