@@ -1,1 +1,1 @@
-empty caskets makes the most noise
+empty caskets make the most noise
