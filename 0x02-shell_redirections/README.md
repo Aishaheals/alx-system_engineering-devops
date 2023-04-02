@@ -1,1 +1,1 @@
-DJ Cut Killer
+empty caskets makes the most noise
